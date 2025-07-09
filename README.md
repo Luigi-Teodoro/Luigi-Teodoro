@@ -4,12 +4,12 @@
 
 <br clear="both">
 
-<img align="left" height="260" src="https://cdn.devox.re/b1970cd4-4879.gif"  />
+<img align="left" height="260" src="https://tenor.com/es/view/cigpepe-pepesmoke-pepe-peepo-cig-gif-12357730050046825775"  />
 
 ###
 
 <div align="center">
-  <img height="237" src="https://cdn.devox.re/2e701c77-89ed.gif"  />
+  <img height="237" src="https://tenor.com/es/view/troll-face-troll-face-meme-gif-8574334096105969015"  />
 </div>
 
 ###
